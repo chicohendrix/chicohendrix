@@ -6,6 +6,9 @@ At my core, I am a perfectionist driven to make an impact in the world that matt
 ### Contact me
 
 LinkedIn -      https://www.linkedin.com/in/ritvik-kumar-aa32131a9/
+
 Email -         rkk5266@psu.edu / ritviksk@gmail.com
+
 Social Media -  https://www.instagram.com/kingritz9/
+
 Youtube -       https://www.youtube.com/channel/UCCZcQEvH8XAEhLwqnqqJqYA
